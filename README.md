@@ -1,8 +1,10 @@
 ### reason why i forked this
-- thw owner said they wanted to make this free but when i made a issue, they said 500$, they are scamming you lmfao
+- the owner said they wanted to make this free but when i made a issue, they said 500$, they are scamming you lmfao
 
 
-\/ owner
+
+
+
 
 ### reason im making this: 
 - so many indians are selling a boost tool for $20-$90 so i want to make it free but also want to know if other people actually want it so go ahead and star to show support <3
